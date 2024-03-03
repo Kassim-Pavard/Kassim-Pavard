@@ -7,7 +7,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=kassim-pavard&label=Profile%20views&color=0e75b6&style=flat" alt="kassim-pavard" /> </p>
 
-- 🌱 I’m currently learning **Backend development with O'Clock School**
+- 🌱 I’m currently searching for a block release training or an internship as **Web Developer**
 
 - To reach me : **kassim_782@yahoo.fr**
 
