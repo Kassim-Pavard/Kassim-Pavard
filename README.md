@@ -11,7 +11,7 @@
 
 - To reach me : **kassim_782@yahoo.fr**
 
-- 📄 Know about my experiences : [https://resume-kassim-pavard.tiiny.site](https://resume-kassim-pavard.tiiny.site)
+- 📄 Know about my experiences : [Resume](https://white-holly-29.tiiny.site/)
 
 - ⚡ Fun fact : **I love cats (who doesn't ?)**
 
